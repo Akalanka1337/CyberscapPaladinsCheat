@@ -1,0 +1,2 @@
+# CyberscapPaladinsCheat
+Updatable Paladins Cheat
